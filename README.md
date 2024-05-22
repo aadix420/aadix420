@@ -1,7 +1,7 @@
 Hey!! 👋
 
-I am a developer, security researcher, and content creator. 
-In my spare time, I enjoy Producing Music.
+I am a developer, security researcher. 
+In my spare time, I enjoy producing Music.
 
 Twitter: https://twitter.com/godsxfinger
-<br>Instagram: https://instagram.com/aadix420
+<br>Instagram: https://instagram.com/aadix808
